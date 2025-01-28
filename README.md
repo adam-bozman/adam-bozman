@@ -1,1 +1,1 @@
-"If you want to live a happy life, tie it to a goal, not people or things."
+"Finance PhD and AI Enthusiast @ [WSU](https://directory.business.wsu.edu/Directory/Profile/adam.bozman/)"
